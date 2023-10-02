@@ -4,7 +4,9 @@
 👨‍💻 Creator
 ------------------------
 Allen Anderson
-rednwilde@gmail.com
+- *570-301-2205*
+- *rednwilde@gmail.com*
+**(*I prefer email*)**
 
 
 🖥️ Editor
